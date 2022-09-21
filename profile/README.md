@@ -1,4 +1,4 @@
-## Hi there 👋
+## 🌈If you need us, we’ll be creating an imaginary things just to stay alive.
 
 <!--
 
